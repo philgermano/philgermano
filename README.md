@@ -12,4 +12,4 @@ My career prior to this was primarily limited to various factory positions. I ma
 Please reach out if you'd like to chat or if you have any questions regarding whatever.
 
 Contact Info: 
-[Linkedin](https://www.linkedin.com/in/philip-germano)
+[Linkedin](https://www.linkedin.com/in/phil-germano)
